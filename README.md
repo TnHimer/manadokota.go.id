@@ -1,0 +1,1 @@
+# manadokota.go.id
